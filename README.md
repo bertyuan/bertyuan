@@ -1,2 +1,2 @@
 # @thedignityofcoffee
-> Email: @thedignityofcoffee@outlook.com
+> Email: thedignityofcoffee@outlook.com
