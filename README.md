@@ -1,2 +1,2 @@
 # @bertyuan
-> Email: thedignityofcoffee@outlook.com
+> Email: bertrandyuan@icloud.com
